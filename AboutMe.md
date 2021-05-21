@@ -37,29 +37,75 @@ I used to read a lot when I was little but had stop for some reason. I try to ha
 -  Watch T.V. Shows & Anime
 
 ![Watch T.V. Shows & Anime](https://c4.wallpaperflare.com/wallpaper/1024/282/343/berserk-guts-armor-sword-wallpaper-preview.jpg)
+
+I watch alot shows mostly anime. I get very passion went I talk about show I watch or episode that was epic.
+
 |Show I Watch|
 | ---------- |
  |Invincible|
+ |One piece|
+ |One punch man
+Mob psychic 100
+Boku no academia
+Seven deathly sin
+Black clover
+Land of the lustrousms
+Ancient mangus bride
+Reborn
+Samurai champoo
+Cowboys Bebop
+Re:zero
+HunterxHunter
+Dororo (the reboot 2019)
+Bango stray dogs
+The promise Neverland
+Bee & Puppy cat
+Hajime no ippo
+Yu Yu Hakusho
+Attack on Titans
+Dragon Ball series
+Afro Samurai
+Black cat
+Black Butler
+Fullmetal Alchemist
+Kill la kill
+kame ga kill
+Baki
+Parasite
+Beastars
+Toilet-bound Hanako-kun
+Blue Exorcist
+Tower of god
+Dorohedoro
+somali and the forest spirit
+Gleipnir
+Dungeon ni Deai wo Motomeru no wa
+Bna
+Dororro
+Juju kaizen|
 
-|One piece|
 - Chess
-
 ![Chess](https://assets.dicebreaker.com/chess-playing-hand.jpeg/BROK/resize/1920%3E/format/jpg/quality/80/chess-playing-hand.jpeg)
+
+I was in the chess club in high school and just continue to playing and teaching my brother.
 
 - billiard table
 
 ![billiard table](https://cdn.shopify.com/s/files/1/1003/7610/products/Green_pool_table_Wall_Mural_Wallpaper_a_1400x.jpg?v=1578614165)
 
+My Grandpa & I used to play pool together, it something that I treasure since his passing.
+
 ### Interest
-- Trail Riding
+Things that I alway wanted to do.
+
+1. Trail Riding
 
 ![Trail Riding](https://content.active.com/Assets/Active.com+Content+Site+Digital+Assets/Article+Image+Update/Cycling/Improve+Your+MTB/carousel.jpg)
 
-
-
-- Soccer
+2. Soccer
 
 ![Soccer](https://daily.jstor.org/wp-content/uploads/2018/06/soccer_europe_1050x700.jpg)
-- Archery
+  
+3. Archery
 
 ![Archery](https://www.usarchery.org/images/tinymce/201120184520-2020-socal-day3-04399-X5-3.jpg)
