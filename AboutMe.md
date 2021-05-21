@@ -41,6 +41,7 @@ I used to read a lot when I was little but had stop for some reason. I try to ha
 | ---------- |
  |Invincible|
 
+|One piece|
 - Chess
 
 ![Chess](https://assets.dicebreaker.com/chess-playing-hand.jpeg/BROK/resize/1920%3E/format/jpg/quality/80/chess-playing-hand.jpeg)
