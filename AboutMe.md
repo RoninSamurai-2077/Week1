@@ -37,8 +37,9 @@ I used to read a lot when I was little but had stop for some reason. I try to ha
 -  Watch T.V. Shows & Anime
 
 ![Watch T.V. Shows & Anime](https://c4.wallpaperflare.com/wallpaper/1024/282/343/berserk-guts-armor-sword-wallpaper-preview.jpg)
-
- 
+|Show I Watch|
+| ---------- |
+ |Invincible|
 
 - Chess
 
